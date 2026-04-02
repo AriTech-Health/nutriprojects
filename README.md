@@ -1,1 +1,1 @@
-Minha lista de Projetos Voltados parqa academicos de Nutrição
+Minha lista de Projetos Voltados para academicos de Nutrição
